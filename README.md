@@ -61,7 +61,7 @@ and you ended up in a Finale Battle with Telegram and at the end
 
 ## Credits 💖
 - [𝗞𝗔𝗥𝗠𝗔](https://t.me/FuckerEx)
-- [𝗦𝗧𝗥𝗔𝗡𝗚𝗘𝗥](https://t.me/FuckerEx) 
+- [𝗧𝗲𝗿𝗮𝗕𝗮𝗮𝗽](https://t.me/FuckerEx) 
 
 ## Support / Channel
 
