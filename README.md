@@ -1,6 +1,6 @@
 <p align="center">⚡️𝗞𝗔𝗥𝗠𝗔-𝗨𝗦𝗘𝗥𝗕𝗢𝗧⚡️</p>
 
-<img src="https://files.catbox.moe/uufiry.jpg">
+<img src="https://files.catbox.moe/ui0ia3.png">
 
 <p align="center">⚡️𝗔 𝗣𝗢𝗪𝗘𝗥𝗙𝗨𝗟 𝗜𝗗 𝗨𝗦𝗘𝗥𝗕𝗢𝗧⚡️</p>
 
